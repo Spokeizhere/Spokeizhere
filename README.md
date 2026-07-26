@@ -1,5 +1,5 @@
 <img width="2048" height="683" alt="image" src="https://github.com/user-attachments/assets/d70609a3-2881-4fc2-93b8-a96862b7e472" />
- <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=f0ffdb&center=true&vCenter=true&width=435&lines=bronyharem+ask+for+pronouns;BPD+DID+minor+taken" alt="Typing SVG" /></a>
+ <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=f0ffdb&center=true&vCenter=true&width=435&lines=bronyharem+ask+for+pronouns;BPD+DID+taken" alt="Typing SVG" /></a>
 <img width="1000" height="80" alt="image" src="https://github.com/user-attachments/assets/2c014603-d0b2-4540-8438-43418589882d" />
    <details>
 <summary>$${\Huge\color{b6b7ad}\textbf{socials}}$$</summary>
